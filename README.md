@@ -3,7 +3,7 @@
 
 [Brief Introduction]
 
-I go by Rha, I'm an Universal Student/Teacher and entreprenuer with a profound interest in technology, protection, and solving complex problems. Always striving to learn and elevate as much as possible to stay aware and updated on the world and it changes  so that I can identify opportunity and mediate all risk and vulnerabilities for me and the ones around me.
+I go by Rha, I'm an Universal Student/Teacher and entreprenuer with a profound interest in technology, protection, and solving complex problems. Always striving to learn and elevate as much as possible to stay aware and updated on the world and it changes so that I can identify opportunity and mediate all risk and vulnerabilities for me and the ones around me.
 
 ## Objective
 [Provide Objective]
